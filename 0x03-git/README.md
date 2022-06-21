@@ -1,1 +1,3 @@
 another read
+
+GRIT MENTALITY
